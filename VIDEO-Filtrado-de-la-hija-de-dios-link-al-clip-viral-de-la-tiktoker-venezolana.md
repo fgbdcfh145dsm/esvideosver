@@ -1,12 +1,11 @@
 Recientemente, un video filtrado de la tiktoker venezolana conocida como 'La hija de Dios', es tendencia en redes después en redes surgieran detalles sobre la viralización de un clip privado, lo que ha captado la atención de los internautas en plataformas sociales, así como reacciones sobre su contenido.
 
-El que supuestamente fue filtrado por su expareja conocido como Jonny, se ha vuelto un tema candente en la red, además que muchos han comenzado a debatir sobre la privacidad, así como los riesgos de grabarse en una situación comprometedora.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-La situación, se ha vuelto incontrolables, varios de los seguidores de la hija de Dios han comenzado a compartir enlaces que supuestamente continúen las escenas explícitas, lo que ha aumentado a aun mas el morbo de los internautas.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-Video filtrado de la hija de dios  Foto: cortesía 
-El video de la hija de Dios causa polémica en las redes sociales, por su contenido explícito. Foto: cortesía
-La creadora de contenido no ha tardado en reaccionar a los comentarios y videos, acerca de la filtración, mencionando que el video que circula fue editado. Además figuras conocidas en redes han comenzado a replicar el rumor a través de clips, donde brindan detalles sobre el metraje.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 ¿Cómo ver el video de la hija de Dios en Telegram?
 Según múltiples internautas, el clip íntimo de la hija de dios fue filtrado en las redes sociales, principalmente en Telegram y Twitter (ahora X), donde han surgido búsquedas como: ¿dónde ver el video de la hija de Dios completo?, ¿hay link del video de la hija de dios?, ¿con quién sale la hija de dios en video?, esto con la intención de saciar su curiosidad en torno a los explícitos.
