@@ -1,8 +1,10 @@
 En las últimas horas, un clip titulado como "Video de la hija de Dios", ha acaparado la atención de los internautas, esto por tratarse de una supuesta filtración de contenido íntimo de la influencer venezolana. La controversia ha desatado múltiples búsquedas, así como reacciones en redes sociales en cuanto al metraje privado.
 
-Este metraje que, según usuarios en la red de TikTok, fue filtrado por la pareja de la hija de dios, el cual corresponde al nombre de Jonny, aunque la creadaora de contenido no ha emitido declaraciones en cuanto al metraje filtrado, este continúa generando un intenso debate en foros, así como en canales de difusión.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-Comentarios como: "ya vi el video de la hija de dios", "el video de la hija de dios está en Telegram, vayan a mi perfil", "ni mi pasado esta más oscuro" "hija de Dios y ese vídeo vale", son algunos de los comentarios que se pueden leer en los videos de la creadora de contenido.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 Watch on TikTok
