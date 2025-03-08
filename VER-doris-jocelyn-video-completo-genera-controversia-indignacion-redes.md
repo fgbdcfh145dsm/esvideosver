@@ -1,9 +1,10 @@
 En las últimas horas, una de las influencer más reconocidas en el mundo del maquillaje ha sido fuertemente criticada en redes sociales debido a un polémico video. Se trata de la mexicana Doris Jocelyn, quien ha lanzado un nuevo clip que ha desatado una gran controversia en la web, ya que muchos lo consideran ofensivo y racista.
 
-Dicho video se ha viralizado rápidamente desde su publicación, ya que usuarios en plataformas como X (antes Twitter) han iniciado un fuerte debate sobre la YouTuber. Esto ha puesto en duda su talento y creatividad, pues algunos comentaron: "lo que hacen para ganar vistas", entre otras críticas. La ola de comentarios de descontento sigue en aumento.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-¿Cuál es el video controversial de Doris Jocelyn?
-El video, disponible en el perfil oficial de TikTok de la YouTuber @dorisjocelyn, lleva la descripción: "Nuestros hermanos migrantes son un reflejo de la valentía, la esperanza y la lucha incansable por un futuro mejor". En el clip, de un minuto de duración, se puede ver a Doris Jocelyn en compañía de otra influencer, representando el trato hacia los migrantes en Estados Unidos.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 
