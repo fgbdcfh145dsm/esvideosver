@@ -1,11 +1,11 @@
 En las últimas horas, el nombre de Cynthia Urias, se ha convertido en tendencia en las redes sociales, esto después que surgieran fotos comprometedoras de la conductora del programa de 'Cuentamelo Ya', lo que ha desencadenado un alboroto en las redes, principalmente en Telegram y Facebook, donde aseguran están circulando con facilidad.
 
-Antes la situación, la conductora no dudó en pronunciarse en las redes sociales, sobre la filtración de contenido explicito, asegurando que se tratan de imágenes editadas con Photoshop o generadas con inteligencia artificial, esto para manchar su imagen en las redes sociales.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-A pesar de esto, el tema continúa siendo un tema candente en las redes, y muchos se han sumergido en la búsqueda imparable de las fotos explicitas de Cynthia, todo esto con la intensión de saciar su curiosidad en torno al material privado.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-¿Cuáles son las fotos filtradas de Cinthya Urías?
-Las fotos filtradas de Cinthya están circulando ampliamente en las redes sociales, principalmente en Twitter (ahora X) y Facebook, donde la conductora se muestra en situaciones comprometedoras y con poca roba. Mientras un segundo capta las escenas.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Estas imágenes en contexto muestran, a Cinthya en ropa interior o con trajes de baño, según afirmó ella en sus redes sociales, en una de estas aparece en la cabina de radio al lado de sus colegas, algo que tacho de incoherente.
 
